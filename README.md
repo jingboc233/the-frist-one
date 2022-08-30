@@ -2,4 +2,4 @@
 
 My first respositify on Github
 
-I love :mmusic: and :her:.
+I love :music: and her.
